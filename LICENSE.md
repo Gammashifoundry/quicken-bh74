@@ -1,4 +1,4 @@
-# 
+# rare QuickBooks for PC scripts is the best QuickBooks for PC scripts with financial-reporting and user-permissions. Safe, reliable, and optimized for maximum performance.
 
 
 
